@@ -18,4 +18,7 @@
 
 🤝 ¡Hablemos! Estoy emocionado de conectarte. Ya sea para colaborar en proyectos interesantes, intercambiar ideas o simplemente charlar sobre el mundo del desarrollo, ¡no dudes en contactarme!
 
-📧 Correo Electrónico: ruartejuancruz@gmail.com 💬 LinkedIn: Juan Cruz Ruarte 🌐 Sitio Web: (en proceso...) ¡Gracias por visitar mi perfil! Espero que encuentres algo interesante y útil aquí. ¡Hagamos que la web sea un lugar mejor, línea de código a línea de código! 😄🚀
+📧 Correo Electrónico: ruartejuancruz@gmail.com 
+💬 LinkedIn: [Juan Cruz Ruarte](https://www.linkedin.com/in/juan-cruz-ruarte-aa302a255/) 
+🌐 Sitio Web: (en proceso...) 
+¡Gracias por visitar mi perfil! Espero que encuentres algo interesante y útil aquí. ¡Hagamos que la web sea un lugar mejor, línea de código a línea de código! 😄🚀
